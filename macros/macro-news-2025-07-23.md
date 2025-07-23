@@ -1,0 +1,19 @@
+2025-07-23
+
+Today’s News Highlights
+• Auditor questions CBK secret Sh14.5bn notes printing deal
+ The public procurement watchdog was kept in the dark over the Central Bank of Kenya’s secretive award of a Sh14.5 billion tender for printing currency to a German company, turning the spotlight on cost and choice of firm in the mega tender. The Auditor-General reckons that the CBK broke the law in failing to involve the Public Procurement Regulatory Authority (PPRA) in the search for the currency printer for fresh bank notes that had been labelled classified or top secret. Kenya in April last year awarded Germany’s Giesecke+Devrient Currency Technologies GmbH (G+D) a five-year deal worth Sh14.5billion ($109,422,740) to print new  currency notes, replacing Britain’s De La Rue, which had been on the job for decades. 
+
+• Kenya depletes fuel subsidy fund amid surge in pump prices
+The State has depleted the subsidy fund used to stabilise retail fuel prices, exposing consumers to volatile global shifts that have seen the cost of diesel and petrol jump by at least Sh8.50 a litre. Energy Cabinet Secretary Opiyo Wandayi told Parliament that the petroleum development levy (PDL) fund is empty and that the ministry lacked the Sh2.5 billion needed to stabilise pump prices for the month running to August 14. This marks the second month in a row since October last year that Kenya has failed to apply the subsidy, which has ranged between Sh0.46 and Sh9 a litre monthly. 
+
+•  Annual roads spend rises for the first time since Ruto took office
+Annual public investment in construction and upgrade of roads has grown for the first time since President William Ruto took power nearly three years ago, buoyed by cash inflows from funds backed by fuel levy charged on motorists, fresh exchequer numbers show. The data, published by Treasury Cabinet Secretary John Mbadi last Friday, indicates expenditure on roads and related infrastructure, such as bridges jumped by more than half (57.77 percent) in the financial year ended June 2025 to Sh64.02 billion. The climb, the fastest since the financial year ended June 2020, ended two years of consecutive cuts on the cash wired to road projects from the government’s main account, the exchequer. The data shows funding of road projects directly from the exchequer slowed from Sh75.14 billion in the final financial year of the former administration of President Uhuru Kenyatta in June 2022 to Sh52.48 billion for the year that followed, and further to Sh40.58 billion in the fiscal year ended June 2024. 
+
+• Isuzu set to enter Kenya's electric vehicle market
+ Isuzu East Africa is set to launch its first electric vehicle (EV) in the country in the next few months as it tests market readiness for the models. The company is expected to introduce an EV truck before the end of the year, with its parent, Isuzu Motors Limited, planning to offer battery or fuel-cell powered options in all categories by 2030. Isuzu East Africa’s managing director and chairperson, Rita Kavashe, said that one of the main concerns about offering electric vehicles is the short battery life associated with many electric automobiles. 
+
+• KCB pays Sh829bn letters of credit in fuel import deal
+ KCB Group has paid $6.405 billion (Sh829.04 billion at current exchange rates) worth of letters of credit (LCs) for fuel supplied to Kenya on credit, making it the single biggest lender backing the deal that started two years ago. This is based on disclosures tabled before Parliament, which show that seven banks, including KCB Group, have paid LCs worth $10.9 billion (Sh1.41 trillion at prevailing rates) to the three Gulf firms supplying Kenya with fuel since April 2023. LCs are financial instruments whereby banks commit to settle a buyer’s payment to the supplier of a good or service at an agreed time, thus offering much-needed comfort to the seller.
+
+Courtesy: of Business Daily
