@@ -1,3 +1,5 @@
+2025-07-24
+
 1. President William Ruto says Kenya Pipeline Company will be listed on the NSE by September 2025. 
 
 This will be the first government IPO in 17 years
